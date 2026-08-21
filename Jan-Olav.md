@@ -1,0 +1,1 @@
+1. jeg spillte trommer før
